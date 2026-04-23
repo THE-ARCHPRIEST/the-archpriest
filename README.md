@@ -5,11 +5,11 @@ i gave birth to my son btw
 
 Hi gang!!
  
- I mainly go by Gabriel, or even Calar. If you wish, you can also call me by any skin i sit as! My pronouns are He/It, and I am 20. (01/08!)
+ I mainly go by Gabriel. If you wish, you can also call me by any skin i sit as! My pronouns are He/It, and I am 20. (01/08!)
 
  I have very low social energy and often fall quiet or go afk, keep that in mind. I'm also slow to answer in general ... 
 
-I'm french but more comfortable w/ english!!! For..Whatever reason.
+I'm french but more comfortable w/ english :-)
  
 Idc for C+H, i'll simply move away if i dont wanna sit w ppl lol
 
