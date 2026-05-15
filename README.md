@@ -43,7 +43,7 @@ I am so very uncomfortable with jokes about Incest, except me to block you over 
 
 you're under -14 . Dangles reminder that I am old as shit /lh
 
- Forsaken / Hazbin Hotel / Helluva Boss / South park . I don't necessesarily enjoy the fandom/content, and mostly do not enjoy hearing about it due to my own opinion/experience w/ it. I'm a hater and i do not care! Too old to gaf!
+DNB / Forsaken / Hazbin Hotel + Helluva Boss / South park . I don't necessesarily enjoy the fandom/content, and mostly do not enjoy hearing about it due to my own opinion/experience w/ it. I'm a hater and i do not care! Too old to gaf!
 
 Also i don't fuck with all that regular DNI criteria. I'll hide you if you're into certain medias that are obviously problematic.
 
