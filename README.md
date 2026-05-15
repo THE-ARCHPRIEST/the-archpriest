@@ -9,19 +9,19 @@ Hi gang!!
 
  I have very low social energy and often fall quiet or go afk, keep that in mind. I'm also slow to answer in general ... 
 
+ Somewhat a hypersharing yumeshipper, ask for my f/o(s). :-3
+
 I'm french but more comfortable w/ english :-)
  
 Idc for C+H, i'll simply move away if i dont wanna sit w ppl lol
 
 All my favourite roblox games are getting cancelled but alas i still like  ERROR_CODE, Minecraft (ARG and horror mods), No, I'm not a human, Marble Hornets, thought I'm a big fan of Pokémon, Umamusume, Okami, Mortal Kombat, Transformers and some other Roblox titles that i am too lazy to name. I play Limbus Company, HSR and CRK every 3 years
 
-Special niche interest mentions ; i like Sonic X, Utopia (THE BRITISH SERIE!!) , Sims 2, Papa's pizzeria games, Pet Society... These are all very dear to me
-
-I have some deep attachments to some characters, calling them my huzz/wife ect, i don't care about 'doubles' it is not that deep (to me) 
+Special niche interest mentions ; i like Sonic X, Utopia (THE BRITISH SERIE!!) , Sims 2, Papa's pizzeria games, Pet Society... These are all very dear to me.. Hmu if you like them too..
 
 I sometimes indulge in homestuck content.. I used to be a big fan like 6 years ago lol
 
-I DO  NOT SUPPORT BAD PEOPLE!! if you see me in a pepoyo skin I JUST LIKE THE MUSIC!! 
+I DO NOT SUPPORT PROBLEMATIC PEOPLE!! if you see me in a pepoyo skin I JUST LIKE THE MUSIC!! Separate the art from the artist. (unless the art is as bad as the artist LOL)
 
 Say hi to [Tarn](https://www.patreon.com/SynthesizedHoryzont) ! She doesn't bite, lol.
 
@@ -43,9 +43,9 @@ I am so very uncomfortable with jokes about Incest, except me to block you over 
 
 you're under -14 . Dangles reminder that I am old as shit /lh
 
-Hetalia / Forsaken / Hazbin Hotel / Helluva Boss / South park . I don't necessesarily enjoy the fandom/content, and mostly do not enjoy hearing about it due to my own opinion/experience w/ it. I'm a hater and i do not care! Too old to gaf!
+ Forsaken / Hazbin Hotel / Helluva Boss / South park . I don't necessesarily enjoy the fandom/content, and mostly do not enjoy hearing about it due to my own opinion/experience w/ it. I'm a hater and i do not care! Too old to gaf!
 
-Also i don't fuck with proshipping/darkshipping, and all that regular DNI criteria.
+Also i don't fuck with all that regular DNI criteria. I'll hide you if you're into certain medias that are obviously problematic.
 
 I HIDE FREELY, MAINLY HIDING EVERY PROBLEMATIC SKIN. Idc if u think making YBC characters  or hitler is funny it's not lmaoo (i have  over  +100 people hidden..  lolol)
 
