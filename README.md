@@ -31,7 +31,7 @@ Keep in mind i have a vile humor ; not sexual, thought just jokes that seems off
 
 I have the mental stability of a chewed-on shoelace trying to hang onto an old shoe, I am not always up for talking, so if i take some time to answer it's most likely for my own sanity's sake. Not a you problem, I just like my time alone.
 
-I don't often get tones in textes/calls but do not require tonetags all of the time. Don't overuse tones with me, it's annoying. 
+Overusing tone tags is SOO annoying. Also stop bitching about tone tags ruining the jokes i do not gaf.
 
 If you make Epstein/Diddy jokes around me i will block you on sight. Stop taking serious things so lightly.
 
