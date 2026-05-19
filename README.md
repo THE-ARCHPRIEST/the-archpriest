@@ -23,29 +23,6 @@ I DO NOT SUPPORT PROBLEMATIC PEOPLE!! if you see me in a pepoyo skin I JUST LIKE
 
 Say hi to [Tarn](https://www.patreon.com/SynthesizedHoryzont) ! She doesn't bite, lol.
 
-BEFORE YOU INT! -
+[MY DNI/IWC LIST!](https://rentry.co/scientistslist)
 
-I do have a dissociative disorder - Excuse my poor memory and often mediocre appearances. 
-
-Keep in mind i have a vile humor ; not sexual, thought just jokes that seems offensive. I do use the slurs that i reclaim -- never ones i cannot reclaim. I have a bad mouth and I swear a bit, if you're not comfy with that then definitely unfriend me.
-
-I have the mental stability of a chewed-on shoelace trying to hang onto an old shoe, I am not always up for talking, so if i take some time to answer it's most likely for my own sanity's sake. Not a you problem, I just like my time alone.
-
-Overusing tone tags is SOO annoying. Also stop bitching about tone tags ruining the jokes i do not gaf.
-
-If you make Epstein/Diddy jokes around me i will block you on sight. Stop taking serious things so lightly.
-
-ILL  KEEP INTERACTIONS AT BAY IF..:
-
-I am so very uncomfortable with jokes about Incest, except me to block you over them. I don't care if they're 'just joke'. Dark humour has its limits and  i fear  some  of you use it as a shield to say WHATEVER.
-
-you're under -14 . Dangles reminder that I am old as shit /lh
-
-DNB / Forsaken / Hazbin Hotel + Helluva Boss / South park . I don't necessesarily enjoy the fandom/content, and mostly do not enjoy hearing about it due to my own opinion/experience w/ it. I'm a hater and i do not care! Too old to gaf!
-
-Also i don't fuck with all that regular DNI criteria. I'll hide you if you're into certain medias that are obviously problematic.
-
-I HIDE FREELY, MAINLY HIDING EVERY PROBLEMATIC SKIN. Idc if u think making YBC characters  or hitler is funny it's not lmaoo (i have  over  +100 people hidden..  lolol)
-
-Also i like to sit and hide every countryhuman i see, so if i hid you its likely cuz you are one of them..  ok?
 ╰─..★.─────────────────────────────────────────────────────────────────────╯
