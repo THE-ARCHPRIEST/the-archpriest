@@ -23,6 +23,6 @@ I DO NOT SUPPORT PROBLEMATIC PEOPLE!! if you see me in a pepoyo skin I JUST LIKE
 
 Say hi to [Tarn](https://www.patreon.com/SynthesizedHoryzont) ! She doesn't bite, lol.
 
-[MY DNI/IWC LIST!](https://rentry.co/scientistslist)
+Due to some concerns regarding my skins, here is [my dni/iwc](https://rentry.co/scientistslist) list, my apologize for the vague dni i used to have, i did not mean to sound like an hypocrite...
 
 ╰─..★.─────────────────────────────────────────────────────────────────────╯
