@@ -7,13 +7,13 @@ Hi gang!!
 
  I have very low social energy and often fall quiet or go afk, keep that in mind. I'm also slow to answer in general ... 
 
- Somewhat a hypersharing yumeshipper, i really love william afton/springtrap...
+ Somewhat a hypersharing poly yumeshipper, i really love william afton/springtrap...
 
 I'm french but more comfortable w/ english :-)
  
 Idc for C+H, i'll simply move away if i dont wanna sit w ppl lol
 
-I like. Fnaf! Alot! Majoras mask, Vocaloid content, Some roblox games (i'm too lazy to name them), Minecraft (horror mods and args! my beloved!)
+I like. Fnaf! Alot! Into the Pit, FNAF 1 to 5.. ect ect.. I've been into fnaf since i was a wee kid LOL. Majoras mask, Vocaloid content, Some roblox games (i'm too lazy to name them), Minecraft (horror mods and args! my beloved!)
 
 Special niche interest mentions ; i like Sonic X, Utopia (THE BRITISH SERIE!!) , Sims 2, Papa's pizzeria games, Pet Society... These are all very dear to me.. Hmu if you like them too..
 
