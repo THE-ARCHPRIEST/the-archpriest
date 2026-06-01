@@ -1,4 +1,5 @@
-<img width="2460" height="2920" alt="image" src="https://github.com/user-attachments/assets/a84e3798-6e6a-4bd4-bd30-12901e56798a" />
+<img width="768" height="768" alt="image" src="https://github.com/user-attachments/assets/a1a7fe5f-080a-4c89-81af-36839e2cdab2" />
+
 
 He/it/She + any neos, i'm fine with anything; 20 y/o . More on my strawpage
 
