@@ -1,5 +1,6 @@
-<img width="768"  alt="image" src="https://github.com/user-attachments/assets/a1a7fe5f-080a-4c89-81af-36839e2cdab2" />
+<img width="800"  alt="image" src="https://github.com/user-attachments/assets/8b6735bd-8e6a-45d7-b4e6-abde4359b53c" />
 
+ART BY しあわ
 -
 He/it/She + any neos, i'm fine with anything; 20 y/o . More on my strawpage
 
