@@ -1,5 +1,5 @@
 # i've heard about a mass  doxxing happening over ponytown, stay safe and unlink your github/disc ect from your ponies.
-
+https://docs.google.com/document/d/1HfN8FKkMS3EJAH_h-9fbsiYfYnhQmvjy/edit
 <img width="800"  alt="image" src="https://github.com/user-attachments/assets/8b6735bd-8e6a-45d7-b4e6-abde4359b53c" />
 
 ART BY しあわ
