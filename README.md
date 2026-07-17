@@ -1,7 +1,6 @@
-hi itd be nice if you didnt ship  me with my friends ty im uncomfortable with that.
-****
-<img width="800"  alt="image" src="https://github.com/user-attachments/assets/8b6735bd-8e6a-45d7-b4e6-abde4359b53c" />
 
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jim+Nightshade&pause=1000&color=82F7B5&background=3E856924&center=true&width=435&lines=I+know+where+we're+going+;And+it's+a+heaven%2C;An+island+for+when+we'll+both+settle+in%2C+a+paradise.)](https://git.io/typing-svg)
- -
-~~credits : しあわ~~
+<p align="center"> <img width="736"  alt="image" src="https://github.com/user-attachments/assets/ae3b4a11-5aef-4492-a4d4-e9bbdd048b30" />
+<p align="center">
+ ${\textsf{\color{#00ffc8}Credit for the images; 夏 and ミクロ on Pixiv! }}$
+ <p align="center">
+ ${\textsf{\color{#00ffc8} Check Strawpage and Rentry for more info about myself, thank you.}}$
