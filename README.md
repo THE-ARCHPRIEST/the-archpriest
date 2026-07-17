@@ -1,4 +1,4 @@
-
+hi itd be nice if you didnt ship  me with my friends ty im uncomfortable with that.
 ****
 <img width="800"  alt="image" src="https://github.com/user-attachments/assets/8b6735bd-8e6a-45d7-b4e6-abde4359b53c" />
 
