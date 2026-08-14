@@ -3,7 +3,7 @@
 <p align="center">
  ${\textsf{\color{#00ffc8}Credit for the images; 夏 and ミクロ on Pixiv! }}$
     <p align="center">
- ${\textsf{\color{#00ffc8} -16 DNF/INT. I'm 21. Please respect my wishes! }}$
+ ${\textsf{\color{#00ffc8} -16 DNF/INT UNLESS I KNOW YOU. I'm 21. Please respect my wishes! }}$
  <p align="center">
  ${\textsf{\color{#00ffc8} Check Strawpage and Rentry for more info about myself, thank you.}}$
  <p align="center">
