@@ -1,10 +1,11 @@
-<p align="center"> <img width="736" alt="image" src="https://github.com/user-attachments/assets/a832e68b-e520-460d-8b92-557f7da1502d" />
-    <p align="center">
+<p align="center"> <img width="1280"  alt="image" src="https://github.com/user-attachments/assets/1bb36535-664f-42d3-bf7c-f71f553c53b5" />
+
+   <p align="center">
  ${\textsf{\color{#deab64} " This bourbon is my only friend, " }}$
 
 
 <p align="center">
- ${\textsf{\color{#deab64}Credit for the images; moxxy!!! }}$
+ ${\textsf{\color{#deab64}Credit for the images; moxxy and mee. haha!!! }}$
     <p align="center">
  ${\textsf{\color{#deab64} -16 DNF/INT UNLESS I KNOW YOU. I'm 21. Please respect my wishes! }}$
  <p align="center">
