@@ -1,3 +1,6 @@
+<p align="center">
+ ${\textsf{\color{#f59e42}WHICH ONE OF YOU IS BEING OMINOUS IN MY STRAWPAGE. SHOW YOURSELF. }}$
+
 <p align="center"> <img width="768"  alt="image" src="https://github.com/user-attachments/assets/486794b5-d990-4273-b700-c779f7ef100d" />
 
 
