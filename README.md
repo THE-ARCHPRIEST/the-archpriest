@@ -22,5 +22,5 @@
  
 
    <p align="center">
- ${\textsf{\color{#f59e42} I have a few alts ; @icky-gradient & @french-mime }}$
+ ${\textsf{\color{#f59e42} I have a few alts ; @icky-gradient and @french-mime }}$
  
