@@ -20,3 +20,7 @@
    <p align="center">
  ${\textsf{\color{#f59e42} Thanks to Twinsickle (Moxxy) for these stamps and the art!! :3 }}$
  
+
+   <p align="center">
+ ${\textsf{\color{#f59e42} I have a few alts ; @icky-gradient & @french-mime }}$
+ 
