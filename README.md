@@ -1,26 +1,25 @@
 <p align="center">
- ${\textsf{\color{#f59e42}WHICH ONE OF YOU IS BEING OMINOUS IN MY STRAWPAGE. SHOW YOURSELF. }}$
+ ${\textsf{\color{#00b380}WHICH ONE OF YOU IS BEING OMINOUS IN MY STRAWPAGE. SHOW YOURSELF. }}$
 
 <p align="center">
- ${\textsf{\color{#f59e42} I struggle with keeping friends around. Don't take it personally if i remove you, i just have no energy to talk at all time. Ty. }}$
+ ${\textsf{\color{#00b380} I struggle with keeping friends around. Don't take it personally if i remove you, i just have no energy to talk at all time. Ty. }}$
 
 
-<p align="center"> <img width="768" alt="image" src="https://github.com/user-attachments/assets/82dc23e6-48d5-402c-a3df-c96bbfe87297" />
+<p align="center"> <img width="736"  alt="image" src="https://github.com/user-attachments/assets/5939edac-a063-42a4-bdf4-cdfd6d6bb67c" />
 
 
-
-   <p align="center">
- ${\textsf{\color{#f59e42} " Bee-lieve in yourself! " }}$
-
- <p align="center"> 
- <img width="99"  alt="image" src="https://github.com/user-attachments/assets/22a5f786-c9bd-42e4-a6ba-b7580d45eb44" /> 
 
 
 
    <p align="center">
- ${\textsf{\color{#f59e42} Thanks to Twinsickle (Moxxy) for these stamps and the art!! :3 }}$
+ ${\textsf{\color{#00b380} " I should put soap in your eyes. " }}$
+
+
+
+   <p align="center">
+ ${\textsf{\color{#00b380} Thanks to Twinsickle (Moxxy) for the graphic! ily twin. slash pee. ic by fishiistixx }}$
  
 
    <p align="center">
- ${\textsf{\color{#f59e42} I have a few alts ; @icky-gradient and @french-mime }}$
+ ${\textsf{\color{#00b380} I have a few alts ; @icky-gradient and @french-mime }}$
  
