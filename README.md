@@ -2,6 +2,8 @@
    <p align="center">
  ${\textsf{\color{#00b380} Moxxy u so cute pls don't die. }}$
 
+   <p align="center">
+ ${\textsf{\color{#00b380} Don't bother interacting with trolls or weirdos, it'll only waste your time. Don't stoop down to their level; Hide them. Hide everyone that annoys you ever. }}$
 
 <p align="center"> <img width="736"  alt="image" src="https://github.com/user-attachments/assets/5939edac-a063-42a4-bdf4-cdfd6d6bb67c" />
 
