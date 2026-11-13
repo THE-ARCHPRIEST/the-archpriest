@@ -9,12 +9,12 @@
 
 
    <p align="center">
- ${\textsf{\color{#f28e1b} " Since I am in the midst of my travels... I must bid you farewell. Shouldn't you be returning home? Whenever there's a meeting a parting is sure to follow. However, the parting need not last forever... " }}$
+ ${\textsf{\color{#f28e1b} " Now don't think me rude, but I have been following you... For I know of a way to return you to your former self." }}$
 
 
 
    <p align="center">
- ${\textsf{\color{#f28e1b} Thanks to Twinsickle (Moxxy) for the graphic and pfp ! ily twin. slash pee. ic by jock_o_rama }}$
+ ${\textsf{\color{#f28e1b} Thanks to Twinsickle (Moxxy) for the graphic and pfp ! ily twin. slash pee. ic by jock o rama }}$
  
 
    <p align="center">
