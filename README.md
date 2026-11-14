@@ -9,8 +9,8 @@
 
 
    <p align="center">
- ${\textsf{\color{#f28e1b} " Now don't think me rude, but I have been following you... For I know of a way to return you to your former self." }}$
-
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Quintessential&pause=1000&color=F7B260&multiline=true&random=true&width=435&lines=Now+don't+think+me+rude%2C+but+I+have+been+following+you...+;For+I+know+of+a+way+to+return+you+to+your+former+self.)](https://git.io/typing-svg)
+Copy To Clipboard
 
 
    <p align="center">
