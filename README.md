@@ -1,19 +1,13 @@
 
    <p align="center">
- ${\textsf{\color{#f28e1b} Moxxy u so cute pls don't die. }}$
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Quintessential&size=25&pause=1000&color=F7B260&multiline=true&width=500&height=100&lines=Don't+think+me+rude%2C+but+I+have+been+following+you...+;For+I+know+of+a+way+to+return+you+;to+your+former+self." alt="Typing SVG" /></a>
+
 
 <p align="center"> <img width="736"  alt="image" src="https://github.com/user-attachments/assets/39c73872-40b2-44fe-9f3a-53285eab249c" />
-
-
-
-
-
    <p align="center">
-
-   <p align="center">
- ${\textsf{\color{#f28e1b} Thanks to Twinsickle (Moxxy) for the graphic and pfp ! ily twin. slash pee. ic by jock o rama }}$
+ ${\textsf{\color{#F7B260} Thanks to Twinsickle (Moxxy) for the graphic and pfp ! ily twin. slash pee. ic by jock o rama }}$
  
 
    <p align="center">
- ${\textsf{\color{#f28e1b} I have a few alts ; @icky-gradient and @french-mime }}$
+ ${\textsf{\color{#F7B260} I have a few alts ; @icky-gradient and @french-mime }}$
  
