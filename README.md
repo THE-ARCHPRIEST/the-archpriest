@@ -12,3 +12,4 @@ scubaaaaa
    <p align="center">
  ${\textsf{\color{#F7B260} I have a few alts ; @icky-gradient and @french-mime }}$
  
+ ${\textsf{\color{#0d1117} fagit }}$
