@@ -1,5 +1,5 @@
   <p align="center"> 
-     ![](https://komarev.com/ghpvc/?username=THE-ARCHPRIEST&label=The Moon Children&style=plastic&color=yellow)
+  
    <p align="center">
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Quintessential&size=25&pause=1000&color=F7B260&multiline=true&width=500&height=100&lines=Don't+think+me+rude%2C+but+I+have+been+following+you...+;For+I+know+of+a+way+to+return+you+;to+your+former+self." alt="Typing SVG" /></a>
 
